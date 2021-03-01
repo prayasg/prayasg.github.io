@@ -1,5 +1,5 @@
-[take me home](/index.md)  
-[take me to musings](/musings.md)  
+[take me home](index.md)  
+[take me to musings](musings.md)  
   
   
 hard tbd
