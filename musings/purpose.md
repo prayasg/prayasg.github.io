@@ -14,7 +14,7 @@ To live my best life for no reason other than I choose to and I am free to.
   
 
 ## Progress
-Below is a rough guide of an individual's progress towards acheiving freedom. I make no claims that these thoughts are unique. The scaffolding for these ideas has been heavily inspired by [this post.](https://www.ribbonfarm.com/2009/10/07/the-gervais-principle-or-the-office-according-to-the-office/)
+Below is a rough guide of an individual's progress towards acheiving freedom. The scaffolding for these ideas has been heavily inspired by [this post.](https://www.ribbonfarm.com/2009/10/07/the-gervais-principle-or-the-office-according-to-the-office/)
 
 A person can be called awake when they are aware of the truths of the universe and are not ruled by their fear. But its only those rare few who start here. Most of us start off asleep-unaware of the reality of this universe and too busy distracting ourselves with shiny things. There is a phase in between asleep and awake. I call this phase aware. The person who is aware recognizes the truths of the universe but is still subject to the tyranny of fear. They are not yet ready to live their best lives. 
   
