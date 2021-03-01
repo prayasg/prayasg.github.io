@@ -69,3 +69,4 @@
 - To remember that your freedom can never be taken from you, only you have the power to give it away
 - To compare yourself to no one but three individuals: your inner child, your inner old dude, and the version of you that loves themselves fully
 - To always make time to be in nature away from the trappings of civilized life
+- To not accept words in lieu of action. Talk is cheap. 
