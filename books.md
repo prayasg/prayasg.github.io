@@ -1,3 +1,6 @@
-[home](/index.md)  
+[take me home](/index.md)  
+  
+  
+#### summaries. reviews. thoughts.  
 
-books tbd
+- [The Path to Insight Mediation](/books/insight_meditation.md)
