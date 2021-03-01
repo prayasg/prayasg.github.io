@@ -1,8 +1,9 @@
 [take me home](../index.md)  
 [take me to musings](../musings.md)  
   
-## Lessons learned the hard way.
-### March 2021  
+
+# Lessons learned the hard way.
+#### March 2021  
   
 
 - To live with compassion for yourself and others
@@ -65,3 +66,6 @@
 - To not give more than you have within you to give, to remember that in emergencies, you must put on your own oxygen mask before attempting to help others
 - To remember that change is the only truth 
 - To remember that while the universe is rational, your ability to comprehend that rationality is limited 
+- To remember that your freedom can never be taken from you, only you have the power to give it away
+- To compare yourself to no one but three individuals: your inner child, your inner old dude, and the version of you that loves themselves fully
+- To always make time to be in nature away from the trappings of civilized life
