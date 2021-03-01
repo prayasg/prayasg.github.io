@@ -1,10 +1,10 @@
 [take me home](../index.md)  
 [take me to musings](../musings.md)  
   
-#### Lessons learned the hard way.
-March 2021  
+## Lessons learned the hard way.
+### March 2021  
   
-  
+
 - To live with compassion for yourself and others
 - To exercise your mind, your focus, and to study yourself - meditate
 - To exercise your your discipline, your will, your words - vows
