@@ -2,6 +2,6 @@
 *monkey screeching noises in the distance*
   
   
-[stories](/stories/_stories.md)  
-[musings](/musings/_musings.md)  
-[books](/books/_books.md)  
+[stories](/stories.md)  
+[musings](/musings.md)  
+[books](/books.md)  
