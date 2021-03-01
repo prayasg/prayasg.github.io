@@ -1,3 +1,4 @@
 theme: jekyll-theme-midnight
 name: prayas' site
 title: false
+show_downloads: false
