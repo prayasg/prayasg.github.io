@@ -1,6 +1,8 @@
 # Welcome!
-*monkey screeching noises*
-  
+
+*the feathers whisper*  
+*wind murmurs to dancing leaves*  
+*in the distance, screeching*    
   
 [stories](/stories.md)  
 [musings](/musings.md)  
