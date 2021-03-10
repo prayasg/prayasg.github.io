@@ -70,3 +70,12 @@
 - To compare yourself to no one but three individuals: your inner child, your inner old dude, and the version of you that loves themselves fully
 - To always make time to be in nature away from the trappings of civilized life
 - To not accept words in lieu of action. Talk is cheap. 
+- To know the people close to you well; to understand their strengths, weaknesses, motives, intentions, and proclivities; to be observant to their behaviors, actions, and words in order to ascertain their true character; to pay special attention to naturally unfolding experiments but be wary of architecting artificial exeriments; to be deliberate in choosing whom to make bridges to and to the depth of your involvement with that person
+- To remember the litany of fear 
+- To realize that the litany of fear applies to any base emotion: saddness, pleasure, anger, jealousy, greed, and deceit
+- To pay attention to the landscape of your spirit and to not build any places for emotions to pool, but to allow them to pass thru you unfettered
+- To trust in yourself and in the lovingkindness of the universe; to not be too lost in anxieties of the past or future; to remember that your job is to breathe and swim and stroke to the best of your ability to the direction that you can see right now
+- To remember that it is infinitely better to be hated for who you are than to be loved for who you are not - always be authentically and unabashedly you
+- To always keep in mind that similar to how your body's posture must conciensly be improved, your mind has its own posture and deserves an equal level of conciense effort to improve 
+- To learn to sense the timing of life; to not pluck at seeds or fruit before the time is ripe; to cultivate patience and trust in the universe and in yourself
+- To remember that the seed of panic needs only the smallest amount of soil and nourishment before it grows out of control and will require significant effort to vanquish
