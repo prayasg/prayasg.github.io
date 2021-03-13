@@ -2,7 +2,7 @@
 [take me to musings](../musings.md)  
   
   
-# On Purpose and Progress
+# On purpose and progress
 #### March 2021  
   
 ## Purpose

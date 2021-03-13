@@ -2,7 +2,7 @@
 [take me to musings](../musings.md)  
   
   
-# On Baggage
+# On minds
 
 In us exist three minds: the animal, the rational, and the divine. These minds have the capacity to influence the decisions we make and each have their place. Imbalance in the power of each of these minds causes issues. Understanding yourself and your minds provides a means to improving the decisions you will have to make in life. 
   
