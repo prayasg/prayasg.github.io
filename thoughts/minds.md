@@ -3,6 +3,7 @@
   
   
 # On minds
+#### March 2021
 
 In us exist three minds: the animal, the rational, and the divine. These minds have the capacity to influence the decisions we make and each have their place. Imbalance in the power of each of these minds causes issues. Understanding yourself and your minds provides a means to improving the decisions you will have to make in life. 
   
@@ -19,4 +20,4 @@ An undeveloped mind is dangerous in that it will often rely on animal responses 
 The developed mind will cultivate the following:
 - the ability to understand each of the minds, and their propoals in response to a stimuli  
 - the mindfulness and strength to deliberately choose and act upon the response from the appropriate mind  
-- the foresight to actively train the minds such that they are under control  
+- the foresight to actively train the animal and rational minds
