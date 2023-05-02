@@ -1,6 +1,4 @@
 [take me home](../index.md)  
-[take me to musings](../musings.md)  
-  
 
 # Lessons learned the hard way.
 #### March 2021  

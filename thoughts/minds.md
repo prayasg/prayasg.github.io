@@ -1,6 +1,4 @@
 [take me home](../index.md)  
-[take me to musings](../musings.md)  
-  
   
 # On minds
 #### March 2021

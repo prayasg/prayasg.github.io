@@ -1,6 +1,4 @@
 [take me home](../index.md)  
-[take me to musings](../musings.md)  
-  
   
 # Be Okay Not Knowing
 #### May 2023
