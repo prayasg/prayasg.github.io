@@ -27,6 +27,6 @@ Feminine first. Learn to be receptive. Learn to be soft - especially towards you
 
 Then cultivate the masculine. The doing. Action. Discipline and follow through. Walk calmly into the ice water, the uncomfortable starting point, and find stillness, find that in you which will keep you going. Practice finding that again and again. Literally go sit in ice water. Do the work to water that seed and tend to it. 
 
-However you get there, in whatever way that you are able to, birth that crazy little idea into reality. Small steps of course. Maybe its saying hi to that random person you are drawn to. Maybe its going on random little get together posted by someone whom you barely remember (how do I know that guy??) just because it sounds cool. Maybe its following through on the thing you signed up on even though now you have cold feet and really don't want to do it. 
+However you get there, in whatever way that you are able to, birth that crazy little idea into reality. Small steps of course. Maybe its saying hi to that random person you are drawn to. Maybe its going on random little get together posted by someone whom you barely remember (how do I know that guy??) just because it sounds cool. Maybe its following through on the thing you signed up on even though now you have cold feet and really don't want to do it. Maybe its saying fuck it when you see that portal open up in front of you and diving all the way in not knowing whats on the other side or where its going to go. 
 
 Whatever it is, do it. 
