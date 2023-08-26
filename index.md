@@ -23,5 +23,5 @@
 ### Learnings
 [Dream Analysis & Speaking the Language of the Subconscious](/learnings/dream_analysis.md)  
 [JUUL Labs, Teen Vaping, and Ingredients of a Healthy News Diet](/learnings/news_diet.md)  
-
+[Breathwork](/learnings/breathwork.md)
 <!-- https://www.markdownguide.org/cheat-sheet/ -->
