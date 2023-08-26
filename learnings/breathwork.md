@@ -31,6 +31,9 @@ The techniques are categorized by the effect they will have.
     - [my video](https://youtu.be/uGQ9zfIDXbA)
 - Box breathing
 
+### Super secret technique
+- [Dont tell anyone](https://www.instagram.com/reel/Cv6jRiavrCv/?igshid=NTc4MTIwNjQ2YQ==)
+
 ### Breathing for altered states
 These are powerful techniques that should be done in the presence of a trained individual
 - [Transformational](https://www.transformationalbreath.com/)
