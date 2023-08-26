@@ -40,7 +40,7 @@ These are powerful techniques that should be done in the presence of a trained i
 ## Resources / Books
 - Exhale - Richie Bostock (Very short and practical; full of various practices)  
 - Breath - James Nestor (Everyone is talking about this - I personally havent read it)  
-- [Integral Guides](https://integralguide.com/50+Permanent+Notes/%F0%9F%92%A8+Breathwork/%F0%9F%92%A8+Bellows+Breath) (A great collection of resources and information, including a bunch of different breathworks)
+- [Integral Guides](https://integralguide.com/Breathwork) (A great collection of resources and information, including a bunch of different breathworks)
 
 ## TODO:
 
